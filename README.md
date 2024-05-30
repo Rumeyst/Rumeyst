@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on blockchain projects, open source contributions, and decentralized applications
 
-📫 How to reach me: https://x.com/Rume_yst
+📫 How to reach me on discord @Rume_yst
 
 😄 Pronouns: he/him
 
