@@ -2,8 +2,6 @@
 
 👀 I’m interested in Blockchain & Open source
 
-🌱 I’m currently learning Open source development
-
 💞️ I’m looking to collaborate on blockchain projects, open source contributions, and decentralized applications
 
 📫 How to reach me on discord @Rume_yst
